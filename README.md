@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Dounekcxvj
+- 👀 I’m interested in software engineering
+- 🌱 I’m currently a student at African Leadership University
+- 💞️ I’m looking to develop my skills
+- 📫 My whatsapp number is +250790135712
+- My github name with my school projects is Ardinenukuri
+- My instagram is Ardynukuri
